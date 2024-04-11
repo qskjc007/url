@@ -4,8 +4,6 @@
 
 ## 官网: <br> https://雀实快.com
 
-## 官网: <br> https://qskjc.com （中国大陆需要代理访问）
-
 ## 官网: <br> https://03.qskjc.com （中国大陆直接访问）
 
 ## 官网: <br> https://04.qskjc.com （中国大陆直接访问）
