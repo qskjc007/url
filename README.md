@@ -4,7 +4,6 @@
 
 ## 官网: <br> https://雀实快.com
 
-## 官网: <br> https://n1.top1.lol （中国大陆直接访问）
 
 
 
